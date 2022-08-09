@@ -1,4 +1,4 @@
 ## Installation
 
-1. Go to the site sambirus.com
+1. Go to the site baileysanden.com
 
